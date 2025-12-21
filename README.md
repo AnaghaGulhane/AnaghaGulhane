@@ -7,7 +7,9 @@
 •🌱 I’m currently learning Automation testing 
 
 
-•📫 How to reach me anaghagulhane2@gmail.com
+•📫 How to reach me anaghagulhane2@gmail.com 
+
+Thank You
 
 
 
